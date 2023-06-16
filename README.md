@@ -1,5 +1,5 @@
+![tech](https://github.com/HugoFournel/HugoFournel/assets/61244528/2e49ab61-6eab-4faf-8dcd-295bad730a24)
 
-![Readme_background](https://mcdn.wallpapersafari.com/medium/69/3/lbHkPj.jpg)
 
 # Who
 
